@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning how to raise and be patient with a 15 year old son
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... if you know, you know 😄
-- 😄 Pronouns: ...
 - ⚡ Fun fact: 'Arctic' comes from the Greek word 'arktos', meaning "Bear", Antartic means "No Bear"
 
 <!---
